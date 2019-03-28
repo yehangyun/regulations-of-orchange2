@@ -2,4 +2,4 @@
 天津橙子科技有限公司
 
 ## 公司英文名称
-Lemonce
+Tianjin Or-Change Tech Co., Ltd
